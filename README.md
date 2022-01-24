@@ -1,1 +1,0 @@
-# sakamoto-jpg.github.io
